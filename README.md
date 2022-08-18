@@ -20,6 +20,11 @@ Considero que tengo un nivel de Ingles B1, entiendo los puntos principales de te
 
 Mi aprendizaje con el inglés seguirá en proceso, estoy en busca de mejorar mi fluidez al hablar y entablar cualquier conversación.
 
-## 
+## 📝Certificaciones
+
+He logrado las siguientes certificaciones que complementan mi carrera profesional.
+
+- Scrum Master Professional Certificate - SMPC®. [Badge](https://www.credly.com/badges/5ec628e7-9610-4572-b722-622f468a46ee/linked_in_profile)
+- Scrum Foundations Professional Certificate SFPC. [Badge](https://certificates.easy-lms.com/exam/session/d93c1183-02b3-479e-88b0-a0e62d82f528)
 
 
